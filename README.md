@@ -1,0 +1,9 @@
+Download Link: https://assignmentchef.com/product/solved-household-budgeting
+<br>
+Create a simple household budget, including all income and expenses. There are various templates available online to help you do this. Find one that you feel comfortable with and that fits your needs to complete this activity. (***This you do not need to do***) Will upload budget.doc to help answer question 2
+
+Were you surprised by anything when you created the budget? Do you think you will use it and follow it?How might a career change (Computer Systems Analysis field or any relatable I.T. Field) and further education affect your budget?Criteria:
+
+The requirements below must be met for your paper to be accepted and graded:
+
+Write a minimum of 400 words (approximately 2 pages) using Microsoft Word.Attempt APA style, see example below.Use font size 12 and 1” margins.Include cover page and reference page.At least 60% of your paper must be original content/writing.No more than 40% of your content/information may come from references.Use at least two references from outside the course material, preferably from EBSCOhost.Text book, lectures, and other materials in the course may be used, but are not counted toward the two reference requirement.Reference material (data, dates, graphs, quotes, paraphrased words, values, etc.) must be identified in the paper and listed on a reference page.Reference material (data, dates, graphs, quotes, paraphrased words, values, etc.) must come from sources such as, scholarly journals found in EBSCOhost, online newspapers such as The Wall Street Journal, government websites, etc.Sources such as Wikis, Yahoo Answers, eHow, etc. are not acceptable.
